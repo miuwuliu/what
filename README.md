@@ -30,6 +30,9 @@
 ### 每天三次，来看不怎么爱穿衣服的美女
 [🌟 随机美女 @ranonebot](https://t.me/ranonebot)  
 
+### Get id.获取用户、bot、群组、频道的ID
+[ID查询 @suyuabot](https://t.me/suyuabot)
+
 ### 4k壁纸
 [4K壁纸https://t.me/bingbizhi](https://t.me/bingbizhi)
 

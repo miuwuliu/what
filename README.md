@@ -28,7 +28,10 @@
 [🎉鉴黄全网|母狗调教|欧美少妇 https://t.me/tiaojiaoxiaomei](https://t.me/tiaojiaoxiaomei)
 
 ### 每天三次，来看不怎么爱穿衣服的美女
-[🌟 随机美女 @ranonebot](https://t.me/ranonebot)
+[🌟 随机美女 @ranonebot](https://t.me/ranonebot)  
+
+### 4k壁纸
+[4K壁纸https://t.me/bingbizhi](https://t.me/bingbizhi)
 
 ### ALL About RSS
 - 链接: https://t.me/aboutrss - 9877 位成员

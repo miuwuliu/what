@@ -1,5 +1,5 @@
 # 电报群组频道大全，群组收集 telegram groups  
-更新于 2025-08-13 12:20  
+更新于 2025-08-30 21:48  
 
 因超1w多个，全部加载缓慢，分为5页，
 [1/5页](https://github.com/miuwuliu/what/blob/main/groups1.md)  [2/5页](https://github.com/miuwuliu/what/blob/main/groups2.md)  [3/5页](https://github.com/miuwuliu/what/blob/main/groups3.md)  [4/5页](https://github.com/miuwuliu/what/blob/main/groups4.md)  [5/5页](https://github.com/miuwuliu/what/blob/main/groups5.md)  

@@ -14,21 +14,21 @@
 
 
 ### 🔥包养空姐、演员、护士、老师、健身教练、瑜伽老师。只服务高端人士。真实用户发布的包养信息
-[🐦觅小秘_包养 https://t.me/baoyang_ni ](https://t.me/baoyang_ni)
+[🐦觅小秘_包养 @baoyang_ni ](https://t.me/baoyang_ni)
 
 ### 🍁telegram广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
-[💎 电报中文广告联盟 https://t.me/guanggaofenfa](https://t.me/guanggaofenfa)
+[💎 电报中文广告联盟 @guanggaofenfa](https://t.me/guanggaofenfa)
 
 ### 🐸推视频，每天随机推荐88部视频，那种男女“枪”战，肉身赤膊,每月15日凌晨更新收藏排行榜
 [推视频@Tuishipin  @Tuishipinbot](https://t.me/Tuishipinbot)
 
 ### 🦚就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
-[✨提醒你 https://t.me/tixingnibot](https://t.me/tixingnibot)
+[✨提醒你 @tixingnibot](https://t.me/tixingnibot)
 
 ### 每日更新91porn。接各种广告。公益内容免费发布。
-[🔮 极品老熟女|露脸少妇|国产人妻 https://t.me/ripron](https://t.me/ripron)
+[🔮 极品老熟女|露脸少妇|国产人妻 @ripron](https://t.me/ripron)
 
-[🎉鉴黄全网|母狗调教|欧美少妇 https://t.me/tiaojiaoxiaomei](https://t.me/tiaojiaoxiaomei)
+[🎉鉴黄全网|母狗调教|欧美少妇@tiaojiaoxiaomei](https://t.me/tiaojiaoxiaomei)
 
 ### 每天三次，来看不怎么爱穿衣服的美女
 [🌟 随机美女 @ranonebot](https://t.me/ranonebot)  
@@ -39,7 +39,7 @@
 ### 🔎查询用户id/频道id/群组id/添加底部按钮
 [ 🎠 @anniuidbot](https:://t.me/anniuidbot)
 ### 4K壁纸
-[ 💳 4K纸https://t.me/bingbizhi](https://t.me/bingbizhi)
+[ 💳 4K壁纸 @bingbizhi](https://t.me/bingbizhi)
 
 ### ALL About RSS
 - 链接: https://t.me/aboutrss - 9877 位成员

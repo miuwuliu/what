@@ -19,6 +19,11 @@
 ### telegram广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
 [💎 电报中文广告联盟 https://t.me/guanggaofenfa](https://t.me/guanggaofenfa)
 
+### 推视频，每天随机推荐88部视频，那种男女“枪”战，肉身赤膊,每月15日凌晨更新收藏排行榜
+[推视频@Tuishipinbot](https://t.me/Tuishipin)
+
+
+
 ### 就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
 [✨提醒你 https://t.me/tixingnibot](https://t.me/tixingnibot)
 
@@ -33,6 +38,8 @@
 ### Get id.获取用户、bot、群组、频道的ID
 [ID查询 @suyuabot](https://t.me/suyuabot)
 
+### 查询用户id/频道id/群组id/添加底部按钮
+[@anniuidbot](https:://t.me/anniuidbot)
 ### 4k壁纸
 [4K壁纸https://t.me/bingbizhi](https://t.me/bingbizhi)
 

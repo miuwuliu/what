@@ -10,8 +10,9 @@
 ### 🔥包养空姐、演员、护士、老师、健身教练、瑜伽老师。只服务高端人士。真实用户发布的包养信息
 [🐦觅小秘_包养 https://t.me/baoyang_ni ](https://t.me/baoyang_ni)
 
-### telegram广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
-[💎 电报中文广告联盟 https://t.me/guanggaofenfa](https://t.me/guanggaofenfa)
+### 中文广告平台，服务广告金主和频道主，推广投放，广告变现。
+机器人 @cnguanggaobot
+[💎 tg广告联盟 https://t.me/guanggaopingtai](https://t.me/guanggaopingtai)
 
 ### 就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
 [✨提醒你 https://t.me/tixingnibot](https://t.me/tixingnibot)

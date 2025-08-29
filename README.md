@@ -1,5 +1,5 @@
 # 2025电报群组频道大全，群组收集 telegram groups  
-更新于 2025-08-30 21:48  
+更新于 2025-08-30 21:55  
 
 因超1w多个，全部加载缓慢，分为5页，
 [1/5页](https://github.com/miuwuliu/what/blob/main/groups1.md)  [2/5页](https://github.com/miuwuliu/what/blob/main/groups2.md)  [3/5页](https://github.com/miuwuliu/what/blob/main/groups3.md)  [4/5页](https://github.com/miuwuliu/what/blob/main/groups4.md)  [5/5页](https://github.com/miuwuliu/what/blob/main/groups5.md)  
@@ -16,15 +16,13 @@
 ### 🔥包养空姐、演员、护士、老师、健身教练、瑜伽老师。只服务高端人士。真实用户发布的包养信息
 [🐦觅小秘_包养 https://t.me/baoyang_ni ](https://t.me/baoyang_ni)
 
-### telegram广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
+### 🍁telegram广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
 [💎 电报中文广告联盟 https://t.me/guanggaofenfa](https://t.me/guanggaofenfa)
 
-### 推视频，每天随机推荐88部视频，那种男女“枪”战，肉身赤膊,每月15日凌晨更新收藏排行榜
-[推视频@Tuishipinbot](https://t.me/Tuishipin)
+### 🐸推视频，每天随机推荐88部视频，那种男女“枪”战，肉身赤膊,每月15日凌晨更新收藏排行榜
+[推视频@Tuishipin  @Tuishipinbot](https://t.me/Tuishipinbot)
 
-
-
-### 就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
+### 🦚就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
 [✨提醒你 https://t.me/tixingnibot](https://t.me/tixingnibot)
 
 ### 每日更新91porn。接各种广告。公益内容免费发布。
@@ -38,10 +36,10 @@
 ### Get id.获取用户、bot、群组、频道的ID
 [ID查询 @suyuabot](https://t.me/suyuabot)
 
-### 查询用户id/频道id/群组id/添加底部按钮
-[@anniuidbot](https:://t.me/anniuidbot)
-### 4k壁纸
-[4K壁纸https://t.me/bingbizhi](https://t.me/bingbizhi)
+### 🔎查询用户id/频道id/群组id/添加底部按钮
+[ 🎠 @anniuidbot](https:://t.me/anniuidbot)
+### 4K壁纸
+[ 💳 4K纸https://t.me/bingbizhi](https://t.me/bingbizhi)
 
 ### ALL About RSS
 - 链接: https://t.me/aboutrss - 9877 位成员

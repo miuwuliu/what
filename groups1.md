@@ -1,6 +1,6 @@
 # 电报群组频道大全，群组收集 telegram groups  
 [1/5页](https://github.com/miuwuliu/what/blob/main/groups1.md)  [2/5页](https://github.com/miuwuliu/what/blob/main/groups2.md)  [3/5页](https://github.com/miuwuliu/what/blob/main/groups3.md)  [4/5页](https://github.com/miuwuliu/what/blob/main/groups4.md)  [5/5页](https://github.com/miuwuliu/what/blob/main/groups5.md)  
-更新于 2030-01-11 06:30
+更新于 2026-01-11 06:30
 ## 群组、频道、机器人提交收录联系 [@allgroupsofbot](https://t.me/allgroupsofbot)
 
 ### 💯 从娃娃开始🏆，小孩学习第二语言相对容易，轻松考过六级，交流无障碍
@@ -10,8 +10,7 @@
 ### 🔥包养空姐、演员、护士、老师、健身教练、瑜伽老师。只服务高端人士。真实用户发布的包养信息
 [🐦觅小秘_包养 https://t.me/baoyang_ni ](https://t.me/baoyang_ni)
 
-### 中文广告平台，服务广告金主和频道主，推广投放，广告变现。
-机器人 @cnguanggaobot
+### 中文广告平台，服务广告金主和频道主，推广投放，广告变现。机器人 @cnguanggaobot  
 [💎 tg广告联盟 https://t.me/guanggaopingtai](https://t.me/guanggaopingtai)
 
 ### 就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot

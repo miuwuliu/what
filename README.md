@@ -34,7 +34,7 @@
 [🌟 随机美女 @ranonebot](https://t.me/ranonebot)  
 
 ### Get id.获取用户、bot、群组、频道的ID
-[ID查询 @suyuabot](https://t.me/suyuabot)
+[ID查询 @lutoshbot](https://t.me/lutoshbot)
 
 ### 🔎查询用户id/频道id/群组id/添加底部按钮
 [ 🎠 @anniuidbot](https:://t.me/anniuidbot)

@@ -1,5 +1,5 @@
 # 2025电报群组频道大全，群组收集 telegram groups  
-更新于 2025-08-30 21:55  
+更新于 2025-09-01 01:55  
 
 因超1w多个，全部加载缓慢，分为5页，
 [1/5页](https://github.com/miuwuliu/what/blob/main/groups1.md)  [2/5页](https://github.com/miuwuliu/what/blob/main/groups2.md)  [3/5页](https://github.com/miuwuliu/what/blob/main/groups3.md)  [4/5页](https://github.com/miuwuliu/what/blob/main/groups4.md)  [5/5页](https://github.com/miuwuliu/what/blob/main/groups5.md)  
@@ -19,7 +19,7 @@
 ### 🍁telegram广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
 [💎 电报中文广告联盟 @guanggaofenfa](https://t.me/guanggaofenfa)
 
-### 🐸推视频，每天随机推荐88部视频，那种男女“枪”战，肉身赤膊,每月15日凌晨更新收藏排行榜
+### 🐸推视频，每天随机推荐88部视频，就是那种男女“枪”战，肉身赤膊,每月15日凌晨更新收藏排行榜
 [推视频@Tuishipin  @Tuishipinbot](https://t.me/Tuishipinbot)
 
 ### 🦚就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot

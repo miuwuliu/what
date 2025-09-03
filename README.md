@@ -47,7 +47,26 @@
 
 ### ahhhhfs｜A姐分享
 - 链接: https://t.me/abskoop - 241118 位成员
-  A姐分享订阅频道分享资源、影视、软件和福利等有趣的东西。所有内容均发布在：https://www.ahhhhfs.com影视资源：https://www.xbwpys.com/A姐分享NSFW：https://nsfw.abskoop.com地址发布页：https://dizhi.abskoop.comDMCA/投稿/联系邮箱：feedback@abskoop.com
+  A姐分享订阅频道分享资源、影视、软件和福利等有趣的东西。所有内容均发布在：https://www.ahhhhfs.com影视资源：https://www.xbwpys.com/A姐分享NSFW：https://nsfw.abskoop.com地址发布页：https://dizhi.abskoop.com  
+
+[探花外围福利资源合集](https://t.me/tanhua969)  
+
+[口爆人妻熟女调教少妇](https://t.me/shunv969)
+[人妻少妇|最新门视频|极品老熟女|露脸|国产91porn官方群组](https://t.me/laosaohuo)  
+
+[厕所偷拍裙底大奶淫妻 ](https://t.me/toupai9966)
+[绿帽换妻~内射反差学生](https://t.me/neishe969)  
+
+[ 国产3P福利探花双飞](https://t.me/guochan3P)
+[母女双飞探花偷拍 ](https://t.me/shuangfei369)  
+
+[偷情乱伦海角熟女反差](https://t.me/haijiao9696)
+[ 宅男福利麻豆高清无码](https://t.me/madou966)
+[反差少妇欧美白虎](https://t.me/haoshaofu)  
+
+[呻吟,外围,无码,裸贷,麻豆 ](https://t.me/waiweiluodai)
+[反差调教御姐萝莉海角 ](https://t.me/fancha969)
+[极品人妻-巨乳少妇](https://t.me/jipin456)  
 
 ### 🖼ANIME Wallpaper
 - 链接: https://t.me/acgwallpaper - 3192 位成员

@@ -47,8 +47,9 @@
 
 ### ahhhhfs｜A姐分享
 - 链接: https://t.me/abskoop - 241118 位成员
-  A姐分享订阅频道分享资源、影视、软件和福利等有趣的东西。所有内容均发布在：https://www.ahhhhfs.com影视资源：https://www.xbwpys.com/A姐分享NSFW：https://nsfw.abskoop.com地址发布页：https://dizhi.abskoop.com  
+  A姐分享订阅频道分享资源、影视、软件和福利等有趣的东西。
 
+### 🐥少儿不宜，未成年不要点开
 [🪼 探花外围福利资源合集](https://t.me/tanhua969)  
 
 [🐣 口爆人妻熟女调教少妇](https://t.me/shunv969)  

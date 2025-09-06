@@ -21,7 +21,7 @@
 [💎 电报中文广告联盟 @guanggaofenfa](https://t.me/guanggaofenfa)
 
 ### 🐸推视频，每天随机推荐88部视频，就是那种男女“枪”战，肉身赤膊,每月15日凌晨更新收藏排行榜
-[推视频@Tuishipin  @Tuishipinbot](https://t.me/Tuishipinbot)
+[推视频@Tuishipin ](https://t.me/Tuishipin)
 
 ### 🦚就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
 [✨提醒你 @tixingnibot](https://t.me/tixingnibot)

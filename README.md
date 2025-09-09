@@ -18,7 +18,7 @@
 [🐦觅小秘_包养 @baoyang_ni ](https://t.me/baoyang_ni)
 
 ### 🍁telegram广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
-[💎 电报中文广告联盟 @guanggaofenfa](https://t.me/guanggaofenfa)
+[💎 电报中文广告联盟 @guanggaofenfa](https://t.me/Congmingmao)
 
 ### 🐸推视频，每天随机推荐88部视频，就是那种男女“枪”战，肉身赤膊,每月15日凌晨更新收藏排行榜
 [推视频@Tuishipin ](https://t.me/Tuishipin)
